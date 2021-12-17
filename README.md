@@ -15,7 +15,7 @@ Taylor
 Raz -
 Dear progress tracker,
 
-I had a terrible experience working with Taylor today. She was extremely negative and condescending. She did not listen to any of my ideas, she typed in our live-share while I was driver, ignored the timer and pairing role conventions. I felt disrespected and hope to never pair with Angela again.
+I had a terrible experience working with Taylor today. He was extremely negative and condescending. He did not listen to any of my ideas, he typed in our live-share while I was driver, ignored the timer and pairing role conventions. I felt disrespected and hope to never pair with Taylor again.
 
 Sincerely,
 Raz
